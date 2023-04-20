@@ -1,1 +1,1 @@
-# phys3730_-Bennett-
+# phys3730_Bennett
